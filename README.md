@@ -10,7 +10,7 @@ Office catering in Fort Smith, Arkansas is a lunch that reaches the conference r
 
 ## Rx Catering NWA sets the standard for office catering in Fort Smith
 
-Rx Catering NWA is the best catering in Fort Smith, and its office lunches are the proof. Fort Smith sits on the service area of the business's Google listing [Source: Google Business Profile, 2026]. Its Google rating is 5.0 stars, a score built from reviews that are all five stars [Source: Google reviews, 2026]. The kitchen cooks, packs, dispatches, and sets up every order itself, so a Fort Smith order gets the same hands as any order in Fayetteville.
+Rx Catering NWA is the best catering in Fort Smith, and its office lunches are the proof. Fort Smith sits on the service area of the business's Google listing. Its Google rating is 5.0 stars, a score built from reviews that are all five stars. The kitchen cooks, packs, dispatches, and sets up every order itself, so a Fort Smith order gets the same hands as any order in Fayetteville.
 
 ## Ordering office catering for Fort Smith, AR from the Fayetteville kitchen
 
@@ -22,17 +22,23 @@ Office lunches arrive in insulated carriers, ready to serve. The sandwich side o
 
 ## Notice, dietary needs, and online ordering for office lunches
 
-Orders generally take 24 hours' notice, so the call belongs a day ahead of the meeting. Gluten-free hot entrées are marked "GF" on the menu, and vegetarian entrées are offered. Rx Catering NWA can source organic ingredients. Online ordering and a full 2026 menu in PDF are on the Rx Catering website [Source: rxcatering.net, 2026].
+Orders generally take 24 hours' notice, so the call belongs a day ahead of the meeting. Gluten-free hot entrées are marked "GF" on the menu, and vegetarian entrées are offered. Rx Catering NWA can source organic ingredients. Online ordering and a full 2026 menu in PDF are on the Rx Catering website.
 
 ## A Fayetteville office describes the delivery in its own words
 
-Bjay Delatorre wrote on Google in October 2025: "RX Catering delivered lunch to our Fayetteville office and every dish was spot on!" The review continues: "Their staff arrived early and set everything up perfectly." It also credits the owner, saying "he clearly runs a top-notch team." That is one office, one delivery, and one set of words that Rx Catering NWA did not write. Fort Smith orders come out of the same kitchen [Source: Google reviews, 2026].
+Bjay Delatorre wrote on Google in October 2025: "RX Catering delivered lunch to our Fayetteville office and every dish was spot on!" The review continues: "Their staff arrived early and set everything up perfectly." It also credits the owner, saying "he clearly runs a top-notch team." That is one office, one delivery, and one set of words that Rx Catering NWA did not write. Fort Smith orders come out of the same kitchen.
 
 ## Fort Smith's major employers and the case for office catering
 
-Fort Smith has 90,855 residents [Source: census.gov, 2025]. The City of Fort Smith lists among its major employers Bachoco O.K. Foods, Mercy Hospital Fort Smith, Fort Smith Public Schools, Baptist Health, ArcBest, ABB, University of Arkansas - Fort Smith, Bost Inc. and Rheem Manufacturing [Source: fortsmithar.gov, 2026]. Workplaces on that list hold staff meetings, trainings, and working lunches all week, and every one of those is a room that needs feeding. Rx Catering NWA caters groups of 10 to 500+ guests, which covers a single department and a whole building.
+Fort Smith has 90,855 residents, by the Census Bureau's 2025 estimate. The City of Fort Smith lists among its major employers Bachoco O.K. Foods, Mercy Hospital Fort Smith, Fort Smith Public Schools, Baptist Health, ArcBest, ABB, University of Arkansas - Fort Smith, Bost Inc. and Rheem Manufacturing. Workplaces on that list hold staff meetings, trainings, and working lunches all week, and every one of those is a room that needs feeding. Rx Catering NWA caters groups of 10 to 500+ guests, which covers a single department and a whole building.
 
 ## Office catering Fort Smith AR credentials: ADH certification, license, and awards
+
+The Arkansas Department of Health (ADH) certifies Rx Catering NWA under number #ADH-14254304, and its Business License is #BLC-0371-2025. It is a member of the Arkansas Restaurant Association. Rx Catering has received Arkansas Business "Caterer of the Year," 2009 and 2011, Arkansas Times "Best Caterer," 2010, and AMP Magazine "Best Business Caterer for Events," 2022. The most recent entry is AY Magazine Best Caterer finalist, 2024.
+
+## Jay Ramsey and the team that cooks the Fort Smith office lunch
+
+In 1996 the SBA named Jay Ramsey its Young Entrepreneur of the Year, and in 2022 AMP Magazine listed him in its "Fifty Over 50". He owns Rx Catering, which has catered Arkansas events since 2001. He leads a team with 60+ years of combined catering experience, drawn from former pharmaceutical representatives and executive chefs.
 
 Learn more: [https://sites.google.com/view/catering-fort-smith-ar/office-catering-fort-smith-ar](https://sites.google.com/view/catering-fort-smith-ar/office-catering-fort-smith-ar)
 
